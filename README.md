@@ -1,5 +1,5 @@
 - Hi, I’m @Dooble
 -  I’m interested in art and sciences.
--  I’m currently studying spanish, human anatomy , and anthropology
+-  I’m currently studying human anatomy, physics , and art
 -  discord @@doodlebot3248
--  Pronouns:gender neutral
+-  Pronouns: anything gender neutral
